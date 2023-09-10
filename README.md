@@ -1,4 +1,4 @@
-Here's how exactly my Portfolio Website looks like <3 \n
+Here's how exactly my Portfolio Website looks like <3.
 Link to the website: https://afeefaahmad.github.io/portfolio.github.io/
 
 ❣❣
